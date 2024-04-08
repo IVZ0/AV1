@@ -1,8 +1,8 @@
 # AV1
 # Slide Indústria 4.0
+https://www.canva.com/design/DAF_I5K9Gec/mkiM95C0TUavdXo13SuUjg/view
 
-
-
+Esse trabalho involveu um contato com a visão 4.0 do mercado, o novo capitalismo mesclado com a tecnologia e inovação.
 # Protótipo Mobile
 https://www.canva.com/design/DAF-8jCMR60/n2GJah6YJZaubi_i_sKFzQ/edit
 
